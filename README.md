@@ -1,0 +1,1 @@
+# Veri-Bilimi-4.-Hafta-Odevi
